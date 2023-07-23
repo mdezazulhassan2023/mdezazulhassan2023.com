@@ -1,2 +1,2 @@
-# mdezazulhassan2023.com
+# mdezazulhassan2023
 web developer Md Ezazul Hassan
